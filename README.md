@@ -13,7 +13,7 @@
 
 - 💬 Ask me about *Django*
 
-- 📫 How to reach me *yashlrajapati2471@gmail.com*
+- 📫 How to reach me *rohitvishwa789@gmail.com*
   
 - ⚡ Fun fact *Call me as YP*
 
